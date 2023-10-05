@@ -1,4 +1,4 @@
-# Bosques. Homage to Barbara Partee
+# Bosques
 Composition for flute soloist. 
 Premiered by Manuel Morales: Día das Letras Galegas 19052023.
 Venue of the premier: Auditorio Martin Codax, Vigo (Spain)
